@@ -5,7 +5,7 @@
 
 - 📫 How to reach me **hyw4990818@163.com**
 
-- ⚡ Fun fact **travel and explore new fields**
+- ⚡ Hobby **travel and explore new fields**
 
 <p align="left">
 </p>
